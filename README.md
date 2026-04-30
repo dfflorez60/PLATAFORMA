@@ -1,0 +1,2 @@
+# PLATAFORMA
+parcial corte II
